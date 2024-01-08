@@ -24,6 +24,7 @@
 - [Nitin Yadav](https://github.com/nitinya9av) </❤️>
 - [Angelica Michaca](https://github.com/Angelica-Michaca)
 - [Sivapannier]
+- [Modupeola Giwa](https://github.com/Modupegiwa)
 - [charlesdzadu](https://github.com/charlesdzadu)
 - [Milind Dhamu](https://github.com/milinddhamu)
 - [Tony B. Nya](https://github.com/tonybnya)
